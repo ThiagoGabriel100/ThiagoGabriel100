@@ -11,7 +11,7 @@ Meu nome é Thiago Gabriel
 
 thigabriel@gmail.com (Gmail Pessoal)
 
-@00001113450307sp@al.educacao.sp.gov.br (Gmail istitucional)
+@00001113450307sp@al.educacao.sp.gov.br (Gmail institucional)
 
 ![]()https://media1.tenor.com/m/YS05rtOt28IAAAAC/anthony-manchester-united.gif
 
